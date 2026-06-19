@@ -1,0 +1,595 @@
+指e家（Zhi E-Home）智能锁售后服务电话 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎（无转接人工在线）
+指e家（Zhi E-Home）智能锁全国统一售后电话： 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎(预约专享免等待)
+指e家（Zhi E-Home）智能锁售后维修保养服务中心提供维修服务、清洗服务、保养翻新、进水维修、调节指e家（Zhi E-Home）智能锁温度等。我们提供到店维修和师傅上门维修两种服务方式。
+指e家（Zhi E-Home）智能锁售后服务中心
+指e家（Zhi E-Home）智能锁售后服务400电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+周六日不休息,假日无休,快速上门、免预约。售后服务中心为您服务:品质至上,优质服务让每一位客户感到贴心和满意.专业的销售与技术服务,一心一意呵护您的冷暖.欢迎您的来电.
+指e家（Zhi E-Home）智能锁维修中心为用户提供专业的指e家（Zhi E-Home）智能锁维修公司，维修指e家（Zhi E-Home）智能锁不打火、无电源、不启动，掉闸，无火花、自动熄火，水温不稳，声音异常，出水量小，漏气，显示故障代码等一系列故障==提供方便、快捷地上门维修服务。
+业务涉及：指e家（Zhi E-Home）智能锁清洗、长期维护等，本拥有专业维修设备，并且拥有专业技术人员，有着丰富的理论知识和实际维修经验及专业的技术，已成功的为市民及多家公司及用户提供了解决方案，我们愿以专业的技术和真诚的态度为更多公司、家庭用户提供更快捷、满意的专业指e家（Zhi E-Home）智能锁维修服务。
+指e家（Zhi E-Home）智能锁24小时售后服务热线上线（2026最新公告）
+指e家（Zhi E-Home）智能锁售后服务电话：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+指e家（Zhi E-Home）智能锁售后24小时客服热线：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+本公司主营指e家（Zhi E-Home）智能锁维修 →指e家（Zhi E-Home）智能锁；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，指e家（Zhi E-Home）智能锁服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、指e家（Zhi E-Home）智能锁售后维修电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+指e家（Zhi E-Home）智能锁24小时全国推出各售后受理客服中心(2026上线)
+指e家（Zhi E-Home）智能锁全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+指e家（Zhi E-Home）智能锁贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显指e家（Zhi E-Home）智能锁对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+指e家（Zhi E-Home）智能锁全国24小时各售后受理客服中心(2026年更新)
+
+
+
+指e家（Zhi E-Home）智能锁24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔或  𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎客服为您服务。
+
+
+
+指e家（Zhi E-Home）智能锁售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 指e家（Zhi E-Home）智能锁常见故障代码维修指南
+
+指e家（Zhi E-Home）智能锁故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 指e家（Zhi E-Home）智能锁全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+指e家（Zhi E-Home）智能锁全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修指e家（Zhi E-Home）智能锁(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+指e家（Zhi E-Home）智能锁售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月20日03时58分08秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+指e家（Zhi E-Home）智能锁贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显指e家（Zhi E-Home）智能锁对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/d8901f309544833741feb8e38e6f19112f8bd631
+
+江苏电信 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/b9370d9a92602f2fdb25cf3ade775ebceb088b3e
+
+江苏 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/533c44c51d8842eda2baa7197f223ec0fc1d2ccf
+
+安徽广电 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/961b9c5201fe2058405781cf9e389f368c955a31
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/f6164677786dac2d0b0204b9436b97c2ac0ad60b
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/fce5d2f45d1599174dcab2feb9e015801f91a40f
+
+湖北 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/678ce4118cb2fec47deeb93e1d20180001c04712
+
+湖南电信组播直播源下载地址： https://github.com/leb591/fppbcp/commit/6f4019da75660b12c5682d52460916f4c4591af6
+
+湖南电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/e1b3479b2c290e1f0802121d434b3c60afea5457
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/6cd771c98dfebbc3997d8d9baccd1879f9321c33
+
+湖南联通 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/437afca772b06cf5b3742a7369d3d31c58b75ca3
+
+湖南移动 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/f116b7ccf03641b9a52a228695ddf05e66920f76
+
+湖南 IPTV 直播源： https://github.com/leb591/fppbcp/commit/1aaa6d93a26d85243ace43b3ecac0db4aad82190
+
+重庆移动组播直播源下载地址： https://github.com/alexrette/dwglqb/commit/43fae2d0736e5235ab8c069e283b3a88bc43d76d
+
+重庆联通组播直播源下载地址： https://github.com/leb591/fppbcp/commit/0d86144a7eff6b7ddcc71d3da2697786d3b5debd
+
+重庆联通直播源下载地址： https://github.com/alexrette/dwglqb/commit/c87287182b5f07e4a346b03cd2560846e81eaa79
+
+重庆电信组播直播源下载地址： https://github.com/leb591/fppbcp/commit/e8ced59402d77aedfa2d95c1b7f0442f60b01d2a
+
+重庆电信直播源下载地址： https://github.com/alexrette/dwglqb/commit/fb568afc48a8acba19091085af4ffc5ed8c58020
+
+重庆 IPTV 直播源： https://github.com/leb591/fppbcp/commit/50f51117b4798d3d556387a40e09754cb7ce08f5
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/37fa9a26857c5c205a1c51bdbf939fbeb5664a8b
+
+四川电信 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/c90a5064f0514b5bf5da98165ea2bd6955aa4e47
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/alexrette/dwglqb/commit/ba8a3d625294d24a293f2aae70a2b6f8237a5b42
+
+四川广电 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/e3d97b4dd058668abc4fbda8e77e0a28cdb85f27
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/d195a69d877e991bc55dbd4a9e5115652f6ea84d
+
+四川联通 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/292265697b006a61960cac15a26d968c6cda7609
+
+四川 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/f92f524a1a574926f264f0453503ec691bf9ad33
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/deddba49a44343c8435335cce98da8b22fc417a9
+
+云南移动 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/4ff72d92512824d34d042722fc9991504a711fb9
+
+云南 IPTV 直播源： https://github.com/leb591/fppbcp/commit/7c6d27b79c79e1306ee41678184356c43f90b5d3
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/15f37fff41dec62bb32bd4664ad5770ca18fe41e
+
+贵州移动 IPTV 直播源： https://github.com/leb591/fppbcp/commit/4263c0b449a65f0160521e1411a974e206bbfa2d
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/cebdbc135834f4faf0160521e1411a974e206bbfa2d
+
+贵州联通 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/cebdbc135834f4fa561b29534b76c05a86857c28
+
+贵州 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/1851f43cb846a98b82bfa4b8bbe5751d61ad0877
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/4d84f74e72b71470edd309f9c3ba7ba93635355f
+
+福建联通 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/1a75ffd8f920ad1d15da4c4af0b126a16771c1df
+
+福建移动 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/f5c4131bffcf37a5c26034a658e46b576866a8b4
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/cced1a69cf29f04f821d1951d39d3d87e6948a79
+
+福建电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/030d2bae021d8744f8f54547775ef249f98999a6
+
+福建 IPTV 直播源： https://github.com/leb591/fppbcp/commit/c7b98a5be4f01cb6a42a8fc606cbc43eefaf7a61
+
+安徽移动 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/f7151664697cdd5ac341eb2cc5d67ecd46c53248
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/leb591/fppbcp/commit/0640d0ca1adb69f7d510d846eb90651c70d83d80
+
+安徽电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/ab986696ee54d8729c67320b2e2cc4baf37fdabd
+
+安徽联通 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/f10e6a7f737932d9b9ab27c7a0652af4c0fe7f48
+
+安徽 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/4ad07c23b96c85aba8d4141f89abe289b1549c43
+
+陕西地方台直播源下载地址： https://github.com/leb591/fppbcp/commit/35fcf0ee809b21eb2df5e06ee81f6311d0b134ea
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/c59cc611e782f79082e394fe027aa859cc28f9c2
+
+陕西电信 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/dce61fac2419993a6838c8de512fae33d5c58438
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/0d20e3f702d67fc8bfd9d763c094e7a68ccab8ad
+
+陕西移动 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/417277119176635108a76e226809a5d9950ae0b6
+
+陕西 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/a4e463e865a4d018d07c60d52f27867af2126379
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/0f221ee875be91efb7bf1fd83978b499297b752f
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/ea21fe6d3183bf5ebad16c30bae3c095ed3fb22a
+
+甘肃 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/bb2733a63bcaf54201a87864881c79d9ac74f6f7
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/44330471110eb8f811b1459caa7d50d4a4ea041d
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/15cc69cdf6052b774b2689399b1df56f5f9575cb
+
+山西联通 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/1aae964eb02dee92d9d18e3bf1211035fcf7e172
+
+山西 IPTV 直播源： https://github.com/leb591/fppbcp/commit/8efe39945614aa3ff551b53768abf36da2655e7a
+
+天津电信组播直播源下载地址： https://github.com/alexrette/dwglqb/commit/e5b64289d57ba46538ac747c9567fb0d66967f92
+
+天津联通组播直播源下载地址： https://github.com/leb591/fppbcp/commit/e79d59e4318cfae06961bb62a0bb9a67e3e37806
+
+天津 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/aaddf8a96fe50afbf9e0b2053e1783a97eaf9338
+
+上海移动直播源下载地址： https://github.com/leb591/fppbcp/commit/bcc7f89d67e795d17340f9b8c5f573623713e942
+
+上海联通组播直播源下载地址： https://github.com/alexrette/dwglqb/commit/9cb0cd924678a4ca8f9bfa59d05eaaac7712f616
+
+上海联通直播源下载地址： https://github.com/leb591/fppbcp/commit/927a1e8af294d32b4bb95d6497db2da60da30e01
+
+上海电信组播直播源下载地址： https://github.com/alexrette/dwglqb/commit/ff66fb28caa51cf3c4c2ab866a00e3c1f64479cd
+
+上海电信直播源下载地址： https://github.com/leb591/fppbcp/commit/a91d5d07a0acb8294e876c3d90027f1831175ee8
+
+上海 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/dc0a5352dab2246b611605a0aab75a6616df4355
+
+北京移动 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/5f5c7579ea0084651df9d79d3adfe32090c12519
+
+北京移动组播直播源下载地址： https://github.com/leb591/fppbcp/commit/a7aa55ba31b90f95a1bffbda68a1e7d2a3966981
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/b9beda486f0dcc9f9e8a363fb5962690aa6ed977
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/2adb4ca4bcec7e543a409b4cd6bdd9fb4a7633db
+
+北京联通 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/59efbeea6b8ed1af18e3075ca5c768e9fa2746d2
+
+北京 IPTV 直播源： https://github.com/leb591/fppbcp/commit/2395786b8b1cf5018f89e8ebef174ce2bba8e17b
+
+部分地区的移动可全网通用： https://github.com/alexrette/dwglqb/commit/76b00eecfff162d3b4193dd71ab67aeeafc83ca5
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/leb591/fppbcp/commit/8c42428f8b9fc55c85e9d3f47c07cf76593c836f
+
+广播电台下载地址： https://github.com/alexrette/dwglqb/commit/5fe562e0c1c91bac5e4ca70170323464dfee7342
+
+国内景区直播源下载地址： https://github.com/leb591/fppbcp/commit/410e3c633347a5ed8f99b7490cf6595da9ff65dc
+
+轮播华数黑莓下载地址： https://github.com/alexrette/dwglqb/commit/aee1a8250db3784ae4b266ea7c43528819d0a6f8
+
+台湾香港澳门电视台直播源下载地址： https://github.com/leb591/fppbcp/commit/b637954d50836b62e5c672b01096dfe083e
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/alexrette/dwglqb/commit/c645ec62aa9fef8d10871dd790cc04f096dfe083e
+
+国外电视台直播源下载地址： https://github.com/alexrette/dwglqb/commit/c645ec62aa9fef8d10871dd790cca6e28f66af2c
+
+卫视地方台安徽农大下载地址： https://github.com/leb591/fppbcp/commit/0a58d91d45c25bab37bb7be4b12270f94f57af05
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/alexrette/dwglqb/commit/a6e5e7632259a72ab63b3bb3cf2061188968c82d
+
+卫视上海源下载地址： https://github.com/leb591/fppbcp/commit/da45aeae83729e9a535491f2651e65f8d5f68ac7
+
+卫视重庆广电 下载地址： https://github.com/alexrette/dwglqb/commit/e46d41221adc7009cee5604afce974595f6f0cf5
+
+卫视百视 TV 下载地址： https://github.com/leb591/fppbcp/commit/e05b12fa0388e6a734b7be8d2433f8171abf2236
+
+移动 IPv6 直播源下载地址： https://github.com/alexrette/dwglqb/commit/a4b8ea7f6c61a3018aa83b8f8b63d3272e74cbb3
+
+国内电视台 IPv6 直播源下载地址： https://github.com/leb591/fppbcp/commit/6152ab20196103ffa2e43269f1cde426f0d778bf
+
+各大卫视、上千个地方台： https://github.com/alexrette/dwglqb/commit/75fe392669319a4b528d103590271d32d8fbcbe6
+
+国内电视台直播源下载地址： https://github.com/leb591/fppbcp/commit/5fc4baedb4bf383dfecf6201b7af740c239a0763
+
+全国可用直播源： https://github.com/alexrette/dwglqb/commit/37779ecd86c898635e466f65f737ea54b9a1061c
+
+包括完整内容所有已知频道： https://github.com/leb591/fppbcp/commit/f526ec4069b422cf013628f5a3d1a78bf62076a0
+
+除成人内容以外的已知频道： https://github.com/alexrette/dwglqb/commit/57ed7ed8e62dfebdd3e526421fd7d8a08c2cee6f
+
+收集来自世界各地公开可用的 IPTV： https://github.com/leb591/fppbcp/commit/89b9e461922c71fea5e6d46d693670af40fde147
+
+稳定地址： https://github.com/alexrette/dwglqb/commit/2af387abf09972a1a4f2d6d6c25008c96c707d73
+
+2026-06-20 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/leb591/fppbcp/commit/4931b7bf2ec2e2065e8062838d7708adbabc5f60
+
+2026-06-20 更新 IPTV 工具： https://github.com/alexrette/dwglqb/commit/961b04c8c241deddb9a5d05fa75059b34336f2be
+
+2026-06-20 更新世界各地 IPTV 频道： https://github.com/leb591/fppbcp/commit/c1414139a868559143c75c630450b6d759fb3a6b
+
+2026-06-20 更新全国可用直播源： https://github.com/alexrette/dwglqb/commit/693b15dc27779b6470f23a25e40ecb66c44a7a69
+
+新增各地运营商的 IPTV 地址： https://github.com/leb591/fppbcp/commit/f3271cdb9fd652d21e69c22dbb6d8f010a4a0ab6
+
+插件推荐： https://github.com/alexrette/dwglqb/commit/43064c60d62618c9430a5b235f436cd2a6489538
+
+视频教程增加： https://github.com/leb591/fppbcp/commit/ef464d172a6dc0cd8b0e1668fbcbdec6578b7314
+
+咪咕源失效： https://github.com/alexrette/dwglqb/commit/ceec7d18a46fd5af475385b534e8598a599314a6
+
+2026-06-20 更新各地运营商 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/320731c2031fd993cbd16af26fc4cf1496df897e
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/leb591/fppbcp/commit/2f840910a35b5d119defcacd96317200b8fe5e28
+
+新增辽宁广电直播源： https://github.com/leb591/fppbcp/commit/ae733c938d30027118fe9dda6a865b36b256f4ab
+
+新增江西广电直播源： https://github.com/alexrette/dwglqb/commit/b8736fc7437c3579e934ce19787a9b3e2e5dcd3c
+
+新增湖北广电直播源： https://github.com/leb591/fppbcp/commit/2b83956026450b0bc27ea74f2a6797be2966ce54
+
+新增中国广电 cctv + 卫视直播源： https://github.com/alexrette/dwglqb/commit/bc91ba82b77bfc46e1a4d1c1e2fbb2b8e227e186
+
+新增辽宁电信 IPTV 直播源： https://github.com/leb591/fppbcp/commit/e74866ac00e4b24017816e38a94bbd4d7e0f843f
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/alexrette/dwglqb/commit/da5db63cfc82f85b5ad0f876794eadff7264e03a
+
+新增辽宁移动直播源： https://github.com/leb591/fppbcp/commit/eb274cd064f0d348cd7ca05306664705c5c94bbd
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/a45377987f2ca12e871b9a0a448fc8c6dd0f14ed
+
+新增广东联通 IPTV 直播源： https://github.com/leb591/fppbcp/commit/ed2670f0c63b0800868634f6226f54b6f0e38536
+
+新增四川广电 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/ef830e8771c9e4ebf493bb087d7e4312e4c00241
+
+新增云南电信 IPTV 直播源： https://github.com/leb591/fppbcp/commit/9778079c788a5d342b170a468e38cc60514bef78
+
+2026-06-20 更新国内电视台直播源： https://github.com/alexrette/dwglqb/commit/9d9be5826e41d7fee690129272a3d33316e7d58c
+
+新增福建电信 IPTV 直播源： https://github.com/leb591/fppbcp/commit/a037b0c2e82f782b66895037bb7fa0d17c3c5a4f
+
+新增天途云 CCTV + 卫视： https://github.com/alexrette/dwglqb/commit/d89b18ac7a1bcb0b69e86825727841b746b1b4a8
+
+新增腾讯云 CCTV + 卫视： https://github.com/leb591/fppbcp/commit/47b3103e2da1c2126f71b060339bf5cc367c6773
+
+新增 CCTV 付费频道直播源： https://github.com/alexrette/dwglqb/commit/036b2311bc4883d2da788a8f3f7cccc7c2bb3442
+
+新增广播电台： https://github.com/leb591/fppbcp/commit/04583eec16bb1e8ccce7ed705304329443653430
+
+2026-06-20 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/alexrette/dwglqb/commit/0e865a1069647fddf6c11e5d38da8e306e9df845
+
+2026-06-20 更新 台湾香港海外直播源： https://github.com/leb591/fppbcp/commit/f7c052ed0b465d705e573831bf61750cf18badd9
+
+2026-06-20 更新 国内电视台直播源： https://github.com/alexrette/dwglqb/commit/d11c3f13c76b2730d34a213a868b90502c8f697f
+
+国家直播源： https://github.com/leb591/fppbcp/commit/a51dc70d3bffca2e93749e389dccbf966b43d5fa
+
+直播源： https://github.com/alexrette/dwglqb/commit/034126fc07b88091f808533473b9051ebdebbcf0
+
+影视剧场： https://github.com/leb591/fppbcp/commit/446ad3dd8bd9d7a316765c8fb398de69ef729142
+
+台湾香港澳门： https://github.com/alexrette/dwglqb/commit/fa92ad86f6c94e4ea67c73db9fe66a6b2e26dda14
+
+国外电视台： https://github.com/leb591/fppbcp/commit/43e840cd410342e27a684cd178c2440a6b2e26dda14
+
+国内电视台： https://github.com/leb591/fppbcp/commit/43e840cd410342e27a684cd178c24401083dfbb0
+
+更早期 2026-06-20 更新： https://github.com/alexrette/dwglqb/commit/5b2e879739c9df4a62fd5ee77f81c8d86879aee7
+
+各地运营商 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/b08042e16f573689f8bdb0ba79a2b4fe9c57f17b
+
+全国可用直播源： https://github.com/leb591/fppbcp/commit/9948521b59e8e44db7cfb28f726b326ab2bbe5f4
+
+2026-06-20 更新： https://github.com/alexrette/dwglqb/commit/5d2e13797c9a65cc47aa9d9bf4045008831f7878
+
+赞助者： https://github.com/leb591/fppbcp/commit/83ef234f7775dbc29d1d33219e414bb3515ec5e7
+
+文章： https://github.com/alexrette/dwglqb/commit/2b27659e280ce1d01ef43b6e5f98aa582cbfcaad
+
+视频教程： https://github.com/alexrette/dwglqb/commit/1de3401678a5cab45715134e60f2beffe4bd09b1
+
+插件： https://github.com/alexrette/dwglqb/commit/7d0644f931608d88e7f77a6ce89b891e6e76ec74
+
+工具： https://github.com/leb591/fppbcp/commit/b24b61b6663f1c3a8431ed8938cb5b6080163a74
+
+URL： https://github.com/alexrette/dwglqb/commit/409f7d14d9a46a950e68f9dbc13349a75f897f0a
+
+目录： https://github.com/leb591/fppbcp/commit/a70dcb68f3d2d92e9ae064e4843c2f08c034aac7
+
+喀麦隆直播电视频道： https://github.com/alexrette/dwglqb/commit/a27873e0ac0d3eb49e8c3d2e871cc61c5346931b
+
+阿富汗直播电视频道： https://github.com/leb591/fppbcp/commit/7b8d6b3102a78b429b8c8c58393aa1226c3289fd
+
+海地的直播频道： https://github.com/alexrette/dwglqb/commit/86ac39461556f1718c5b64113e45eed841720cc6
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/alexrette/dwglqb/commit/728b8c5501b15855adacebb99169e41d134aadc2
+
+厄瓜多尔直播频道： https://github.com/leb591/fppbcp/commit/a89ecb299a625210a738ce06d3275a438f04cae7
+
+玻利维亚直播频道： https://github.com/alexrette/dwglqb/commit/26a09617ec6e99b70940511085f62f0c2a564737
+
+萨尔瓦多直播频道： https://github.com/leb591/fppbcp/commit/cc05fffc4b2cf09c4149da2d327826ca53a85016
+
+危地马拉直播频道： https://github.com/alexrette/dwglqb/commit/9afce6c73e0eca2f00c7dc2dc31dc5fec113e912
+
+洪都拉斯直播频道： https://github.com/alexrette/dwglqb/commit/5226854cbf4cbc6b5cac9133d9ea6dd85971329e
+
+多米尼加共和国直播频道： https://github.com/leb591/fppbcp/commit/0b95a01fdcc1f35b2dec1cc7f4cb80b3c970fbbb
+
+哥斯达黎加直播频道： https://github.com/leb591/fppbcp/commit/c39acfcf1db9fc9a241733570e4a46ff734db52a
+
+来自世界各地的个电视频道和个摄像机： https://github.com/leb591/fppbcp/commit/5bbc8065bd7d545cc54becef56ac7a7befaea4af
+
+免费数据库： https://github.com/leb591/fppbcp/commit/0e76e6bdc08711ec3dfbd4976d498255413878e6
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/alexrette/dwglqb/commit/4a622c04f19b0481624ffcdbfec9c9fc229f4673
+
+超过个国家地区的个高清频道和： https://github.com/leb591/fppbcp/commit/f0d245bf914551b21f78cf6477ca552ea4924763
+
+超过个直播电视频道影视节目： https://github.com/alexrette/dwglqb/commit/27b44fe520c958a29b475af30a3a509231b5ea6c
+
+提供商列表： https://github.com/alexrette/dwglqb/commit/e7b9f0fc8849284743c22330b54fa6aa61c0b2fd
+
+提供者： https://github.com/leb591/fppbcp/commit/137b3fb31663d8cb2e5007ab0faaaa8145eef227
+
+客户端服务器媒体播放器： https://github.com/alexrette/dwglqb/commit/f8320793df63e31750e8a483d9f7d01bb104245b
+
+支持播放列表文件： https://github.com/leb591/fppbcp/commit/cb7744b9537a382ed9a97c5e849a8a90171789f0
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/alexrette/dwglqb/commit/11bad8d171705bdf5daa61a70807c2eec58eb15f
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/leb591/fppbcp/commit/71b1847c134280a06d329d02faf3a4db15775146
+
+点 即可： https://github.com/alexrette/dwglqb/commit/cf70b2492c89f65fc9c895ae77eb69f5c3e0c6eb
+
+第三行不用管： https://github.com/leb591/fppbcp/commit/6fc0fc33b32427a280a63aeee464e23ead1eac32
+
+第二行输入上面给你的地址： https://github.com/alexrette/dwglqb/commit/a0c94a6c9a956251591a23f14ab4de651ec7b551
+
+第一行随意输入一个名字： https://github.com/leb591/fppbcp/commit/479742148cf57be77d49595e171cb973a179f74c
+
+选择 远程播放列表文件： https://github.com/leb591/fppbcp/commit/5c977d02a01219f77eaa48b3ef02861a29062b05
+
+打开 点击 号： https://github.com/leb591/fppbcp/commit/29c9b976d7519982db37d16f51a1f616688d5e24
+
+食用指南： https://github.com/alexrette/dwglqb/commit/0af957d6817a00ac78c5b8d45b7056ec9838223b
+
+适用于 macOS 的现代媒体播放器： https://github.com/leb591/fppbcp/commit/88f9615297ba5fb8519474de84278b5c0b5f8c00
+
+直播电视和广播客户端插件： https://github.com/alexrette/dwglqb/commit/8422c238a1a9f64dc8466957d3a42aa95eada9a1
+
+具有库支持的免费跨平台媒体播放器： https://github.com/leb591/fppbcp/commit/8ba0087b6e1e1c59697b137d0ff0c34ed1341e12
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/leb591/fppbcp/commit/4041c37877086b73caac705fa302d4035e7fd88f
+
+支持 IPTV 流的应用程序： https://github.com/alexrette/dwglqb/commit/2edb44a89fcad30d09eca3f43f4584d2df0a0aea
+
+工具： https://github.com/leb591/fppbcp/commit/9f85dea4c265c650276d89ddfe9d938a249cac1d
+
+轮播华数求索爱奇艺 2026-06-20 更新： https://github.com/alexrette/dwglqb/commit/d04f4a01205a18a9067918a6cc3cafc8ede195cf
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/leb591/fppbcp/commit/402101b751fcde0465374d3d85b6c3ae55c273f0
+
+台湾香港海外直播源 2026-06-20 更新： https://github.com/alexrette/dwglqb/commit/52deb0b13f101c0b6b32663b2b7872c67ab36705
+
+各大卫视、上千个地方台： https://github.com/alexrette/dwglqb/commit/62402f4cfb4f4549b972dcf4a8b973494c183aac
+
+国内电视台直播源 2026-06-20 更新： https://github.com/leb591/fppbcp/commit/982fbd5d9d9f10f2f20a7735baa9f454724c06cc
+
+卫视腾讯云： https://github.com/leb591/fppbcp/commit/9bdfb90913e4682c78781592c2a9a2ead7af7c83
+
+卫视平顶山学院教育网： https://github.com/alexrette/dwglqb/commit/b2c37026e47e79c74ac32375d01d0f37361ddc7b
+
+卫视天途云： https://github.com/leb591/fppbcp/commit/0e9dda25ead5d4eebc3704f2390b9c468cc24efd
+
+卫视地方台安徽农大： https://github.com/alexrette/dwglqb/commit/616109f150f8444db7c52519103a9befab697cf6
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/leb591/fppbcp/commit/f4dafd4544563f028d1858c9565aa721aa21b94f
+
+央视卫视广西移动直播源： https://github.com/alexrette/dwglqb/commit/b3f44377ce021beb123a2267d1b239290b84d5d3
+
+付费频道直播源： https://github.com/alexrette/dwglqb/commit/baa8d1c5b1319e8828641ce6d93f8486c613d121
+
+国家直播源多个全部有效： https://github.com/leb591/fppbcp/commit/3ef929344471319eb76cb93bfadd54328d094a4a
+
+直播源全部有效： https://github.com/alexrette/dwglqb/commit/3e298fc5b194b752f98a487613344555d5dbb056
+
+全部有效： https://github.com/leb591/fppbcp/commit/4561bcaa15fe5544ffd5ebb85562269ba2a259c2
+
+直播源全部有效老电脑别用： https://github.com/alexrette/dwglqb/commit/8fe6864380959514c8a3521d7a05168472f59d81
+
+影视剧场全部流畅： https://github.com/leb591/fppbcp/commit/3626ca797dacadfdc153c1dc85be0a6baec330b5
+
+全部可用： https://github.com/alexrette/dwglqb/commit/a59e150af9ba0185919ea5db2f1b7de628a45e46
+
+我的播放源： https://github.com/leb591/fppbcp/commit/b102de41e7961629ad647d96e70bb2fbafc1636d
+
+其他直播源 不确定有效性： https://github.com/alexrette/dwglqb/commit/5e2c4c9d615cfb5af93ced5c4db752206ee1853e
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/38c48b6c510800fb2fea2c1789921d88416c6160
+
+新疆 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/f90d77b886ed3eb5a48c7087988c7a95f6aa9d50
+
+内蒙古联通 udp 组播下载地址： https://github.com/leb591/fppbcp/commit/d0b0f01cdc090b526f823be1332195058a67644d
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/01ce7019d9fab6724e96adffdcf5a13766fb0e70
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/709d97242ec756e16c89bebd40c545792631a977
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/5c8d59e3afea430802aeeb5e4479efc54c8e7db1
+
+内蒙古 IPTV 直播源： https://github.com/leb591/fppbcp/commit/b7d28c77ad5e07c6d29efbccd489e63c8e639fd5
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/773e1549ffd6e7477f6d5d19bfd63ec0a2403ef0
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/563ed21c10f492a8ba4c3d48eb3b00a11cac8016
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/549c025fb9861297b75e101c5bbcdbf8c97333b5
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/20bb35482eb0cc4322f50486e951b97f43a4fd3f
+
+黑龙江 IPTV 直播源： https://github.com/leb591/fppbcp/commit/87d453e3bb5ee30a7ed02d7f678410e9928e320d
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/59b4941e019f6c556b55f6c7499e25e0248f9ec9
+
+吉林 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/ede62e5190b2a0f96c654b5d255eb0dcb139792e
+
+辽宁移动直播源下载地址： https://github.com/leb591/fppbcp/commit/00d6cd41077484438a7df8a0d2bacc51a3983fde
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/1f582ee92837b5262ccc0d3b104e3618a367d0f9
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/leb591/fppbcp/commit/e786abee849665e5ad775266deaab01bb83e6773
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/bb54a8ac24de070f99a4dc1767236e8b42c8950c
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/ae5f9f04978de9fffc010a459a391a7dbe8daa98
+
+辽宁 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/c09abc5af83fc8eecc635918d046a45463367997
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/leb591/fppbcp/commit/04e6360565352551b843dffec4b9f8be56ebd32f
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/alexrette/dwglqb/commit/b3b9e85cd8ffbb14b037e6d04b0a1205690ad953
+
+浙江联通 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/afc782f4baec98c3944e86ce9de63e05933b2820
+
+浙江移动 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/fd3387b605d52d55fe1a430525fbf60dac07ca62
+
+浙江 IPTV 直播源： https://github.com/leb591/fppbcp/commit/cc15686e514c3bdee7413f3c77a7a4e95a16f153
+
+江西联通 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/8dfe909eb78b2c35f3df88977f69c6e2492fdd7f
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/3684cb9e3c51cca7c36df413c0e90a36fb482a91
+
+江西电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/191678082d2426803a8ffa0457b94c1afb939ff1
+
+江西移动 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/9e7f332042b360660bc7d91e5882069d7e42fd9c
+
+江西 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/d35e9f7723d7a8baa17ce9e31c6a5557fd1111a0
+
+江苏移动 IPTV 直播源下载地址： https://github.com/leb591/fppbcp/commit/f1f1f0c0a61af192502267d683c3bb22c587b4c3
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/e90d21ed83d687883662c93b74dd5091e536638c
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/9da2ed6975f82806f9431a911cbce56482e72dd3
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/440e475ae92d9dccda0f0dbf6218b781c4783342
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/6b8423cd62dd6a2cf1e021f2796ea2337fcd0a93
+
+江苏电信 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/dc7e15de4c1359cecf5d383ae6b8ee56416b0ff8
+
+江苏 IPTV 直播源： https://github.com/alexrette/dwglqb/commit/c3ed1b3045bc7eebb792768cacb13b9182b6bb5f
+
+安徽广电 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/3270eb47caf8525c06539bb84a66330f632e8593
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/2136bb4bde1fd4b0fcfeb3dc8c8c031d70280f87
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/alexrette/dwglqb/commit/c53e451b37bc703efd245ac89ae17dc471dd95c4
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月20日03时58分08秒
+来源：https://github.com/alexrette/dwglqb/commit/eb1956885bccc704af58ab326c81a1a780ad40b6
+
+来源：https://github.com/alexrette/dwglqb/commit/07357ea32deddacb31e84734f8c2405519fc1814
+
+来源：https://github.com/alexrette/dwglqb/commit/cf8c8d1d3a55f88265815cd688e6847d0b80e8dc
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月20日，03时58分08秒
