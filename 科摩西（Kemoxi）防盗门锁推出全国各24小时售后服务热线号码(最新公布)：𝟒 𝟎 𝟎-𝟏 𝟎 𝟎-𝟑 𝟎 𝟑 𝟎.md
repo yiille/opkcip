@@ -1,0 +1,593 @@
+科摩西（Kemoxi）防盗门锁全国售后服务电话：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎(官方认证）
+科摩西（Kemoxi）防盗门锁全国24小时各售后受理客服中心2026
+科摩西（Kemoxi）防盗门锁各市区24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎(2)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+科摩西（Kemoxi）防盗门锁全国24小时各售后受理客服中心2026
+7天24小时人工电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎客服为您服务、科摩西（Kemoxi）防盗门锁售后服务𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+科摩西（Kemoxi）防盗门锁24小时售后服务热线上线（2026最新公告）
+科摩西（Kemoxi）防盗门锁售后服务电话：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+科摩西（Kemoxi）防盗门锁售后24小时客服热线：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+本公司主营科摩西（Kemoxi）防盗门锁维修 →科摩西（Kemoxi）防盗门锁；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，科摩西（Kemoxi）防盗门锁服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、科摩西（Kemoxi）防盗门锁售后维修电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+科摩西（Kemoxi）防盗门锁24小时全国推出各售后受理客服中心(2026上线)
+科摩西（Kemoxi）防盗门锁全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+科摩西（Kemoxi）防盗门锁贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显科摩西（Kemoxi）防盗门锁对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+科摩西（Kemoxi）防盗门锁全国24小时各售后受理客服中心(2026年更新)
+
+
+
+科摩西（Kemoxi）防盗门锁24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎或  𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎客服为您服务。
+
+
+
+科摩西（Kemoxi）防盗门锁售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 科摩西（Kemoxi）防盗门锁常见故障代码维修指南
+
+科摩西（Kemoxi）防盗门锁故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 科摩西（Kemoxi）防盗门锁全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+科摩西（Kemoxi）防盗门锁全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修科摩西（Kemoxi）防盗门锁(𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+科摩西（Kemoxi）防盗门锁售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月20日12时11分17秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+科摩西（Kemoxi）防盗门锁贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显科摩西（Kemoxi）防盗门锁对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/041ff6af35786f6220ac564b370c74768a07be53
+
+江苏电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/51f4b5b76225de9e04e5028968b670f4143ab9f1
+
+江苏 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/9a02b22985962aa3dcf94dbc61c2a06a025b4974
+
+安徽广电 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/42f9d7fe9bc55f35599b5ea9dbdd4a0b6465e4da
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/61fc2ac3644cf1683e7b1531ae227d64b16bdcf0
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/56fcf5475c0f2bb1d71648be30ae66ca5211b962
+
+湖北 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/47d082d7fa78eb7330a29ad5139bda92910e8d4c
+
+湖南电信组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/00bda38043b573e90c1924eed83338471786baaa
+
+湖南电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/a4544ba494b7a169429636a98ad2a0617462149a
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/55d840ff5988ac36af080e3a778ed57992ae2722
+
+湖南联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/ccf3f9cd978eed2a9685fa8896d443e1b96b2e05
+
+湖南移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/b4c974b544480cf78452838473229ffceac69d9a
+
+湖南 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/f888155a0c77d482b1d35cf4165ee4202fc78ff7
+
+重庆移动组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/672afa9d8a0130b4bfc472367833a135946daf40
+
+重庆联通组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/9d97c120da221312a395d421b0bb4c94f7224aa2
+
+重庆联通直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/98c90c05b60b56dcd350eb86eb7867ffe1391cba
+
+重庆电信组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/61f92e802a82e51540ca3c549ff861f5122d6c37
+
+重庆电信直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/941568a852383719bac449292891d298acde5589
+
+重庆 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/4a438fba3bd1009c0fb85741b13eac8da9c0985a
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/8d1dcb8ddb8e246631e2b6a5fa39fecc6a942b56
+
+四川电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/04d469ec39d10033004feddfb099d2f31814c899
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/662e784e1c891aaa208c31bec188efb67f5124aa
+
+四川广电 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/6d7eabeb9fb6340bdc02894114b980e4bb940693
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/2a9897f65b6b99d47475906e4edd5c8cee475817
+
+四川联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/3f2b5516d7537a09176d123c7713e2761700f251
+
+四川 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/b36abefdb537df7a8c76881d3be0df580c49d11a
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/62646269098f35bb0cb494ad9a0a292ef1ec82eb
+
+云南移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/870f5cd88cf42a71bfbd91d1c883f89a8dc601b3
+
+云南 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/0885dfba20a4fe08855e83d425eb9278f23897f1
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/433e52b05152cb51c1f95e0010d5659101129504
+
+贵州移动 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/73839451ad74396d6870f09d524e846f196dd35e
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/af4f69bfa00b69201348dd8ede7e3f3e8f2aab25
+
+贵州联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/9b5831a5f1e5ebfc3332a513f3a4c3ef300c49a1
+
+贵州 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/51abf23c492852bd2e0bdad49c393876e9b17fd2
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/b9c1b3fcf780a6236c64358a473fb75ed2f0502e
+
+福建联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/3cb68b9f0110133391d2815276c99f79a4915c73d
+
+福建移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/2b9f41bc9665dea1b005d81ac99f79a4915c73d
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/2b9f41bc9665dea1b005d81a2d3687e801b3490683
+
+福建电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/9aa3ad207854ad4c1caa63e6625cbe3aa4f37061
+
+福建 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/109bb3edb3e808b0927bc8b266f275c6e38dfdb4
+
+安徽移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/5570ef7aea65f2938720a0ec5cddf721cfedc071
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/de6dc4fb435c68806124656ca21e783dd5753a35
+
+安徽电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/3b3f2eaf42c327396ed1d5ff046de117506bfa7e
+
+安徽联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/8c57e01fdf9e9734e81c524c09106249397b3810
+
+安徽 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/8bacdf6becc517714851e19fa1578c04d099fd20
+
+陕西地方台直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/761af0da29928ab6ebc88ad643783e2c27b42083
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/93d8783e6794ff821d5e0a4101c8b3eb00fe9685
+
+陕西电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/ca03cd30fe6924f73eb0f6b2b4a6df94ca162d84
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/2f466fa156e2dedc1af7dec52ece053c02b48a48
+
+陕西移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/d32e45958c57b10938fd9840d86a6fa5e686ae71
+
+陕西 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/f1fc53a514eb74837268448cd25b92aea2234cea
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/aa2108d9836aa9bc2e1caacc8fcf9817b49ee93a
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/519090a9ad87d895579e31458e3c37c346056687
+
+甘肃 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/b4692d9e9aefb82eea456e3fca71c2f63e34cb97
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/f6bc57caa49368a79cb14365901d01231f9aa13c
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/1876e23dcb98b53d4917006e9e3ae673a6e93090
+
+山西联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/6414bfb9c4a7881321422d3a58b184f64506494d
+
+山西 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/6b45e7dcfa61e69bc44cbcc559e0248c8944a1fe
+
+天津电信组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/41477483fa7c3cba3824e1c2b563a08466f9cd45
+
+天津联通组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/44ad5a977a6cc53b1ecb287488093db26a0aa836
+
+天津 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/3a9ec2649e5f8f30cd3f26d65346d9b2fa8d60f4
+
+上海移动直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/57cca3f61e90fdd0d452482dc667599bdf0ebde9
+
+上海联通组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/15f6d29ca24613055d61ececd3881327cf68a15f
+
+上海联通直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/ccef71b4febf2cf1c7560676cdc41af60716e81c
+
+上海电信组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/ebbb2af5f67ff46f2664c22ceae5d4f8b4521ad0
+
+上海电信直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/835e60edad6bb3b22fd7ecf4bada8c5a25fe8c97
+
+上海 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/3728194373413528db0b91380a21f635877617a
+https://github.com/owenhoersn/svvxvi/commit/3728194373413528db0b91380a21f635877617a0
+
+北京移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/d5d2a81297611c08d579e067dc8e32c2c053b943
+
+北京移动组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/4d7851d9c3448f307f78da219cd01ac08d6f32b3
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/eac8d398b157e10d120fcd27bbabbe7f676a6fb3
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/0383ea8325f87a0532807ad41fcaab3bc730c546
+
+北京联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/cf11b14df031709d3e250c39473bf71477300e2b
+
+北京 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/9502f6e98edaa13f3260757927e849d8118c7ab2
+
+部分地区的移动可全网通用： https://github.com/owenhoersn/svvxvi/commit/724c229a3735e034533fd14b6b8b753dce53f8b9
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/owenhoersn/svvxvi/commit/ccd91ba73af2ac76013a46f4288958d71f0acd28
+
+广播电台下载地址： https://github.com/owenhoersn/svvxvi/commit/a72bcbe0e8d0537c8d95f8d3eba512ddf176ccce
+
+国内景区直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/fd8db3ab154e08b0597e4d8096c9f12c2f02839a
+
+轮播华数黑莓下载地址： https://github.com/owenhoersn/svvxvi/commit/5d529565e9ccc2f73c720571be50b9a6942918d9
+
+台湾香港澳门电视台直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/af13e7bb2f9d8d93fc8391f6905c6848102cb610
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/owenhoersn/svvxvi/commit/5bfc43e42d1ab8683b173637d601ae603586d71e
+
+国外电视台直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/3d6f72c9fb73a8fb7d27fb8d2b1424252a4f38ed
+
+卫视地方台安徽农大下载地址： https://github.com/owenhoersn/svvxvi/commit/22b4de0e56aebbfd67c54527d44321210b999d70
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/owenhoersn/svvxvvxvi/commit/591b2b52a792f0d97ab9271679045ccb7633e898
+
+卫视上海源下载地址： https://github.com/owenhoersn/svi/commit/591b2b52a792f0d97ab9271679045ccb7633e898
+
+卫视重庆广电 下载地址： https://github.com/owenhoersn/svvxvi/commit/591b2b52a792f0d97ab9271679045ccb7633e898
+
+卫视百视 TV 下载地址： https://github.com/owenhoersn/svvvxi/commit/591b2b52a792f0d97ab9271679045ccb7633e898
+
+移动 IPv6 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/eb88a929401acb6beb47b4fa9f5c555c18933378
+
+国内电视台 IPv6 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/9615aa804bccc0e79a68f1d637a731bf9412e7cc
+
+各大卫视、上千个地方台： https://github.com/owenhoersn/svvxvi/commit/8e70565f6b56901633490761ec45003b967a3b2d
+
+国内电视台直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/fc2621f2338a49e58451f9ef995efb0910aafa2d
+
+全国可用直播源： https://github.com/owenhoersn/svvxvi/commit/8958df03712f1be2d1bd83249c9b2298a70a2b3c
+
+包括完整内容所有已知频道： https://github.com/owenhoersn/svvxvi/commit/5d252c9ecf8f4a630469d655ea0a8e8a62e8c512
+
+除成人内容以外的已知频道： https://github.com/owenhoersn/svvxvi/commit/799664b084d068273810ecfdda9e8f66beff7d7f
+
+收集来自世界各地公开可用的 IPTV： https://github.com/owenhoersn/svvxvi/commit/ab0a92b85b475f8104406800aaea735df488107c
+
+稳定地址： https://github.com/owenhoersn/svvxvi/commit/83ff5256713156c839540c9c1f0e7aa56fac68cc
+
+2026-06-20 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/owenhoersn/svvxvi/commit/e2e106a2f5d672a1dcfa1f7dfa2a00ba9812a36b
+
+2026-06-20 更新 IPTV 工具： https://github.com/owenhoersn/svvxvi/commit/8d8a6c15d8620886a8723e48632a7d58a96ba410
+
+2026-06-20 更新世界各地 IPTV 频道： https://github.com/owenhoersn/svvxvi/commit/c0fdfa39ed7fb14554a2d5e4d64e127e8f121085
+
+2026-06-20 更新全国可用直播源： https://github.com/owenhoersn/svvxvi/commit/a0f5fc541adaaf3c5ffb401f8bd2f693c230c575
+
+新增各地运营商的 IPTV 地址： https://github.com/owenhoersn/svvxvi/commit/c1c522ac8d9b5945d078bca8c8bbed0e8c503178
+
+插件推荐： https://github.com/owenhoersn/svvxvi/commit/40ac2bb139d7163bbbe1a8dc2a43d6e7d6f81a4e
+
+视频教程增加： https://github.com/owenhoersn/svvxvi/commit/257e1b380da34a2ce7de05ff2cbc9fe46c15d199
+
+咪咕源失效： https://github.com/owenhoersn/svvxvi/commit/096dc3b76ca1a6a544640eee0d6975b71d7f1bdd
+
+2026-06-20 更新各地运营商 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/3748a6deeff62d6d01b6107e3f9dc10c61d28f16
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/owenhoersn/svvxvi/commit/53b14d7b9764b3271899b51fc7ac267a6c8dec20
+
+新增辽宁广电直播源： https://github.com/owenhoersn/svvxvi/commit/710b00cce1e1010f4f97a19698e8271952dccd61
+
+新增江西广电直播源： https://github.com/owenhoersn/svvxvi/commit/2c13e5503d0ccce44199069bfd87138ba6ffbfbc
+
+新增湖北广电直播源： https://github.com/owenhoersn/svvxvi/commit/8fd4e4c7209eaed7c1ec5c37e3cdd15afa12d372
+
+新增中国广电 cctv + 卫视直播源： https://github.com/owenhoersn/svvxvi/commit/a404cd4b7ac00e84ed797e4ba02cdde1be1956e3
+
+新增辽宁电信 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/dc2620699f01821325a42ffda1a65b502d2012d6
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/owenhoersn/svvxvi/commit/319b71b9637e5ada2a41fc681a68538a9e0fc449
+
+新增辽宁移动直播源： https://github.com/owenhoersn/svvxvi/commit/53773c147393eb1836b371264d9959a79592add5
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/0883d73c9a97dd46d5cf171af76cc23a35c4a2b3
+
+新增广东联通 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/7d320295411d57b677217a06bfcbf475466e2771
+
+新增四川广电 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/63c81546857a53e40dcc87853a6591f5c1020e5d
+
+新增云南电信 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/821ebf69071d0aa6f0b78ee7cc514c83faa08a84
+
+2026-06-20 更新国内电视台直播源： https://github.com/owenhoersn/svvxvi/commit/e7136c470045dbaf982ca3f9dddadd4a9d918f01
+
+新增福建电信 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/38241760e3e02f5cc165e6dd8cb055c577e8d83e
+
+新增天途云 CCTV + 卫视： https://github.com/owenhoersn/svvxvi/commit/45aeba1cdbc93db37d00e3e8b8de5954ebf9fa18
+
+新增腾讯云 CCTV + 卫视： https://github.com/owenhoersn/svvxvi/commit/1b59367af4d9880eca524b743b587ca90df3905e
+
+新增 CCTV 付费频道直播源： https://github.com/owenhoersn/svvxvi/commit/07c4ebb18d711298041321d650323ad9c3198647
+
+新增广播电台： https://github.com/owenhoersn/svvxvi/commit/5b72f5ad3e5d6c7fe5754748e5f0007921ba9728
+
+2026-06-20 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/owenhoersn/svvxvi/commit/40f9a4ca1dced9b9c5139426db3c9f63b258e114
+
+2026-06-20 更新 台湾香港海外直播源： https://github.com/owenhoersn/svvxvi/commit/1f92c71426ba85248e224c93c0faff1511df897b
+
+2026-06-20 更新 国内电视台直播源： https://github.com/owenhoersn/svvxvi/commit/0573fba3288fa4c0949cc1a7deddf03280c0e5cb
+
+国家直播源： https://github.com/owenhoersn/svvxvi/commit/afd0c61d5c9359d37fce9da93487c2f02e0c1bfb
+
+直播源： https://github.com/owenhoersn/svvxvi/commit/7ef6064e02d62595adead16042c68646091314b0
+
+影视剧场： https://github.com/owenhoersn/svvxvi/commit/c33c52d2bead8d479db5d96bae417f98039ba98d
+
+台湾香港澳门： https://github.com/owenhoersn/svvxvi/commit/26bcb32eb1cb9b337d003179f9716d72b1b4e2c0
+
+国外电视台： https://github.com/owenhoersn/svvxvi/commit/00a35313367844380d16621c1bcb8afa37ba53e2
+
+国内电视台： https://github.com/owenhoersn/svvxvi/commit/a7fb7aae26573d82495c83a2db6388ae05520be3
+
+更早期 2026-06-20 更新： https://github.com/owenhoersn/svvxvi/commit/29b905d37391730794487c8100dd0d5d109f035e
+
+各地运营商 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/7525668d2f43b8183a4f77aa3e97999ffe2d8039
+
+全国可用直播源： https://github.com/owenhoersn/svvxvi/commit/8a7dedca0883cbc5ebf2381b851e434bf8df5811
+
+2026-06-20 更新： https://github.com/owenhoersn/svvxvi/commit/3e2e56e741361169cee7ab9867849c68b19a457c
+
+赞助者： https://github.com/owenhoersn/svvxvi/commit/6fc9aec463434d428af527c8bbbc2c8c7873ded8
+
+文章： https://github.com/owenhoersn/svvxvi/commit/5483efe3137533aa1602e972215b40e5dd11ac29
+
+视频教程： https://github.com/owenhoersn/svvxvi/commit/b45cef0f397b194ebe9bf910634779cdb37fb9df
+
+插件： https://github.com/owenhoersn/svvxvi/commit/1f6a691781b523fe04ea659505b04d8b5b269443
+
+工具： https://github.com/owenhoersn/svvxvi/commit/30713c752e3bd639921a22c8f2d23bfe1986f9e0
+
+URL： https://github.com/owenhoersn/svvxvi/commit/6a505cca1217e6a2d512d5871a27f658cc797e66
+
+目录： https://github.com/owenhoersn/svvxvi/commit/1d964914249eeab4fe0e9fae909a5b1ad0c1b720
+
+喀麦隆直播电视频道： https://github.com/owenhoersn/svvxvi/commit/e64ed5f34862012616c408f6033736259f0e95da
+
+阿富汗直播电视频道： https://github.com/owenhoersn/svvxvi/commit/87984901df6a647e5962b9f1af1e754c1221935f
+
+海地的直播频道： https://github.com/owenhoersn/svvxvi/commit/0d4eb1c636837d1192255b4d19700c030849ddc4
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/owenhoersn/svvxvi/commit/41e46994e6d09efcd61b1cefb61ed6cc7a3af70c
+
+厄瓜多尔直播频道： https://github.com/owenhoersn/svvxvi/commit/d0fb14bb63dd491acf7069bcb529972e3afd04eb
+
+玻利维亚直播频道： https://github.com/owenhoersn/svvxvi/commit/1f5b53fbff477a08bf7034b127a9475a60afde8e
+
+萨尔瓦多直播频道： https://github.com/owenhoersn/svvxvi/commit/5da74480c5b7d85965fb9e0324e232ea4dd7560f
+
+危地马拉直播频道： https://github.com/owenhoersn/svvxvi/commit/7a6fbbe797c3b7400a3b4046d1c1720f322541ec
+
+洪都拉斯直播频道： https://github.com/owenhoersn/svvxvi/commit/e5df14a35ab36dd9141562bbc0e1112ae5e80d7f
+
+多米尼加共和国直播频道： https://github.com/owenhoersn/svvxvi/commit/98607b16235449bf8929f861946b1e9c320e1ed7
+
+哥斯达黎加直播频道： https://github.com/owenhoersn/svvxvi/commit/4161ae35572f37beaa5ebbbf15ae106d47b2fe17
+
+来自世界各地的个电视频道和个摄像机： https://github.com/owenhoersn/svvxvi/commit/c3608e3edb1e902664926c1386a2313bf2e1b062
+
+免费数据库： https://github.com/owenhoersn/svvxvi/commit/7f0e4eba9277f6741f2faef2508bd0372daae722
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/owenhoersn/svvxvi/commit/65ef9819afee40eac944b4edea8071ec0b67969a
+
+超过个国家地区的个高清频道和： https://github.com/owenhoersn/svvxvi/commit/f3444c81b93f567f6766e13dc4e455ec769d9f6a
+
+超过个直播电视频道影视节目： https://github.com/owenhoersn/svvxvi/commit/5aadab8afc38d7ebe8ab8afc6462d5d0ac963b6f
+
+提供商列表： https://github.com/owenhoersn/svvxvi/commit/a300b0c5db6be6bea8f59ea62cc7771e3e7c7601
+
+提供者： https://github.com/owenhoersn/svvxvi/commit/282e9451b3e3d2c9ec046e0d39871c43766b19ba
+
+客户端服务器媒体播放器： https://github.com/owenhoersn/svvxvi/commit/83ad58e77f02e926d427bf452a8d4601b46447ac
+
+支持播放列表文件： https://github.com/owenhoersn/svvxvi/commit/6960eb2b07f0b20c038392bce7ee6d24d81c6744
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/owenhoersn/svvxvi/commit/26ee0072dd13ffe042d18de94d40d24204fc7be1
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/owenhoersn/svvxvi/commit/0e38c4ef3732c74b6c6d7412581788be590975bb
+
+点 即可： https://github.com/owenhoersn/svvxvi/commit/41f223f47d110e8b5bb0334c97c257321cd058ac
+
+第三行不用管： https://github.com/owenhoersn/svvxvi/commit/e368531e407afc17f4f76fa70b7721a3a216843b
+
+第二行输入上面给你的地址： https://github.com/owenhoersn/svvxvi/commit/89822d31bc2d35a1830ecd375ba1956fec40fd07
+
+第一行随意输入一个名字： https://github.com/owenhoersn/svvxvi/commit/7199953b78a03e0f470580362606f2ff5d5f73c4
+
+选择 远程播放列表文件： https://github.com/owenhoersn/svvxvi/commit/451fac305df8e207bc4f61b715fe85e9c26861a9
+
+打开 点击 号： https://github.com/owenhoersn/svvxvi/commit/c05842aca09ac06be2cf229990a7b9cd4f67b0a9
+
+食用指南： https://github.com/owenhoersn/svvxvi/commit/5d17b3afc3e08b14c85bf4368c6b46ee881acbc4
+
+适用于 macOS 的现代媒体播放器： https://github.com/owenhoersn/svvxvi/commit/1981950e0dffee56b02708c49ed68c75f44489e9
+
+直播电视和广播客户端插件： https://github.com/owenhoersn/svvxvi/commit/ea2eef9e27bf68ed6eb9e31fbe4c7d095b93fc3a
+
+具有库支持的免费跨平台媒体播放器： https://github.com/owenhoersn/svvxvi/commit/a55db11e67973708019cfa3f553b54627fe603ef
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/owenhoersn/svvxvi/commit/cef56ed4ba15afafc8aa252f81fd3c0e6b206e30
+
+支持 IPTV 流的应用程序： https://github.com/owenhoersn/svvxvi/commit/1aa4cf082fae2bb17d75b60cc65b09c9862b2fb3
+
+工具： https://github.com/owenhoersn/svvxvi/commit/165149873bfcf13a970a65e922a56ca2072005f1
+
+轮播华数求索爱奇艺 2026-06-20 更新： https://github.com/owenhoersn/svvxvi/commit/823476b48dd4edcf5f4767072af3d994f21bdf1b
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/owenhoersn/svvxvi/commit/d056490e5f13c72df120a1f41e84869a3e5c36cf
+
+台湾香港海外直播源 2026-06-20 更新： https://github.com/owenhoersn/svvxvi/commit/22170c7aca8f15c592d635f82b327724a98a9e70
+
+各大卫视、上千个地方台： https://github.com/owenhoersn/svvxvi/commit/6be3d406e8533e2ca3599a3d1727f8881c413ca7
+
+国内电视台直播源 2026-06-20 更新： https://github.com/owenhoersn/svvxvi/commit/daaf4639bf0aaefde7eb90717704af0316692b91
+
+卫视腾讯云： https://github.com/owenhoersn/svvxvi/commit/7aec0a7b54c7b7878dae28af54106f8dbace8065
+
+卫视平顶山学院教育网： https://github.com/owenhoersn/svvxvi/commit/98acafcd7e153ae76c966ef4d3535ace1911c32d
+
+卫视天途云： https://github.com/owenhoersn/svvxvi/commit/1be021dd8f1ebfcab1b9bc9cb56328706bb8a672
+
+卫视地方台安徽农大： https://github.com/owenhoersn/svvxvi/commit/b3285019ae034043f1dcd214c9086d3e1d5c0d97
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/owenhoersn/svvxvi/commit/ab3f08d77f7936fa1275c25d3e55b023d4faa341
+
+央视卫视广西移动直播源： https://github.com/owenhoersn/svvxvi/commit/3eb7fb0ac703b80b9cbd12b6df173722b8b0e73f
+
+付费频道直播源： https://github.com/owenhoersn/svvxvi/commit/683da650ecdbb0e6edfc98ffae26c587f00d8f20
+
+国家直播源多个全部有效： https://github.com/owenhoersn/svvxvi/commit/8048f09a4901390cf53b082bafe89b3b2f64d122
+
+直播源全部有效： https://github.com/owenhoersn/svvxvi/commit/15fffda5ef030276e8d5c5953f806e93dd121f07
+
+全部有效： https://github.com/owenhoersn/svvxvi/commit/7b1eed033e1129f07a3ea9d456ebe0dda2f545ea
+
+直播源全部有效老电脑别用： https://github.com/owenhoersn/svvxvi/commit/05fcdb8525083cc781ac87f58ae9b0f43b1d7f46
+
+影视剧场全部流畅： https://github.com/owenhoersn/svvxvi/commit/dd07db616a825eb61034918c7bfa60a1b58c1b09
+
+全部可用： https://github.com/owenhoersn/svvxvi/commit/7cfcddfb12291b83c9f5f6e9d4aefca4c53bf993
+
+我的播放源： https://github.com/owenhoersn/svvxvi/commit/da67c07c1efcdfe39f9d44da12475602b79f42e4
+
+其他直播源 不确定有效性： https://github.com/owenhoersn/svvxvi/commit/b0f2123b2e00854289309a81d247857acac29cad
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/a79758085ab590ca57221357498b461be0f9be11
+
+新疆 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/f3ae59f9498a94742d333af37de85891d3f67f79
+
+内蒙古联通 udp 组播下载地址： https://github.com/owenhoersn/svvxvi/commit/764ed415b2e2e5e9656d19d002994250b1cfa48e
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/b31972c49a7232ca6c12b98c3e3739e2cad02fcb
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/6efdfad5c989d13a0d7f5e18d66aff28c99cd029
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/5b8fd457fc247bfb429ef833c1e9671a33b03171
+
+内蒙古 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/ff7cd9e773776e460079ac85082042fd25e7a74d
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/6c3589a0412b90f7b85d890c2bf37fbaabbe1638
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/ae688b068067513e628ee5142e4bfd05b6d4fc4a
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/9fd59da1a3ed442a65ad7ddc8898d8ec9bb98796
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/471b912da7236cbfebb3deeed6343fed097bc88c
+
+黑龙江 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/cd42f8a064b57fe76b213ee916aa276c0fc7a0b0
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/3129de1e934009db03e34492814c973c31367c11
+
+吉林 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/d1672c9f5df40108f311b300dbd9ea7bcf0133a9
+
+辽宁移动直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/f00a99704c401881eac652a8c211df2e232a50b1
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/097fce7d6eeaee8dee97db474e0368e5d43e4973
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/965112bf6d134f7616d6f046d6c5bfbdc02475db
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/3b72ce4298622956dadafcf712a303999834e586
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/956345406b6727b4176d8dc63c1590334f95e17f
+
+辽宁 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/3acaca329222a0c2c205972deed4b021c198596d
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/121ae2f1ac4f3688327e7061fa6cb6294c159c44
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/462d25e60568ce52e83040ee860c54a724d4d81b
+
+浙江联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/57320cb02a7d2f8a87a5fb7bdd6a0c8cfb68b023
+
+浙江移动 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/1ae07f84fdcea4a4040f1dfd1900b8ec186e51fd
+
+浙江 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/00850daae824f2a6caf42fb1685770e18a73c372
+
+江西联通 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/9f3aa728b8629abf8f4e2bc97abea40d5d6bd04d
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/8ea9f8af02efa2303ccee96f246371f40b74500a
+
+江西电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/2fa99878f7d4fec5e1f7a53913e7a88470b38d0c
+
+江西移动 IPTV 直播源下载地址： https://github.com/owenhohoersn/svvxvi/commit/04051616560efbe053932876f42b28ff7deca4cb
+
+江西 IPTV 直播源： https://github.com/owenenersn/svvxvi/commit/04051616560efbe053932876f42b28ff7deca4cb
+
+江苏移动 IPTV 直播源下载地址： https://github.com/owenersn/svvxvi/commit/04051616560efbe053932876f42b28ff7deca4cb
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/4eb466399f9aac766f193fda5e99c61d77a6523a
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/c858287461a29cb030c8aee7d8b7def6f752527a
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/fe445c1458b5f7ee39d66fa971d4aaead2d75b27
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/cd768993ea2f326745e541163bffcc1db1f1b04e
+
+江苏电信 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/9b50eed9b20b643727c66585844a7be0839865d8
+
+江苏 IPTV 直播源： https://github.com/owenhoersn/svvxvi/commit/38ba4cc509a8c0f2ae812b6367443ba41726bb97
+
+安徽广电 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/f8d5ef0e18cb665596587de6e507728f55b3dfaa
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/ef17590873b4f569f165cff05cfecd5ba1c63b1a
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/owenhoersn/svvxvi/commit/97a0c7d8fefeb2e918c42cbe57bd6bfea4baafcd
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月20日12时11分17秒
+来源：https://github.com/owenhoersn/svvxvi/commit/a0694bd2d7c6c8091c61cba501a417ec443711d2
+
+来源：https://github.com/owenhoersn/svvxvi/commit/ec15f82736c26e4a2bf3c572f4a61f05ef9114f8
+
+来源：https://github.com/owenhoersn/svvxvi/commit/a43e8ad83fac992df2798cda4d98cb60531d435a
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月20日，12时11分17秒
