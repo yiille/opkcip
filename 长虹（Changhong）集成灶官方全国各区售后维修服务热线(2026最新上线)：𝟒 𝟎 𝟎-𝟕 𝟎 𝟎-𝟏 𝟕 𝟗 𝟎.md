@@ -1,0 +1,603 @@
+长虹（Changhong）集成灶厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎，部分渠道也显示为 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔 或𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎-：2026年06月20日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括长虹（Changhong）集成灶不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+长虹（Changhong）集成灶24小时售后服务热线上线（2026最新公告）
+长虹（Changhong）集成灶售后服务电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+长虹（Changhong）集成灶售后24小时客服热线：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+本公司主营长虹（Changhong）集成灶维修 →长虹（Changhong）集成灶；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，长虹（Changhong）集成灶服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、长虹（Changhong）集成灶售后维修电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+长虹（Changhong）集成灶24小时全国推出各售后受理客服中心(2026上线)
+长虹（Changhong）集成灶全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+长虹（Changhong）集成灶贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显长虹（Changhong）集成灶对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+长虹（Changhong）集成灶全国24小时各售后受理客服中心(2026年更新)
+
+
+
+长虹（Changhong）集成灶24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎或  𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔客服为您服务。
+
+
+
+长虹（Changhong）集成灶售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 长虹（Changhong）集成灶常见故障代码维修指南
+
+长虹（Changhong）集成灶故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 长虹（Changhong）集成灶全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+长虹（Changhong）集成灶全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修长虹（Changhong）集成灶(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+长虹（Changhong）集成灶售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月20日17时04分36秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+长虹（Changhong）集成灶贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显长虹（Changhong）集成灶对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/ef82c17c185dbb94422d2b648ec2c9fa94ba5d05
+
+江苏电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/7c407f39be93dca192ca7626fd2aaf92d3754c36
+
+江苏 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/60eb89655289349fc93d31176c79117553ea4c16
+
+安徽广电 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/8aaec215d5174465cf7b9161a146c06fb82d3e16
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/2f629ddfa2b7dcdf3f360888d4778c7913869707
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/dbbf8062666b8cd8f7461110213e514367fd4366
+
+湖北 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/0ccef97b4b9388d96a3f0691e5f80a393541b81b
+
+湖南电信组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/7023b4dc97854d6f85a74d50cfb99be43d9d83d1
+
+湖南电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/f0f8987446ff389f4df7f1ddeb856786caa25254
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/6c0efc87728f8dd993887b2c1d54d25314126a0e
+
+湖南联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/5c80298f3e2653a7d91e4b9f532591c33171dfdf
+
+湖南移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/9fb2b89711d94202d66c90f28a9b2bdbc40a0b6f
+
+湖南 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/618145001a5e27ebaaa6c9ff51137b3800a3f0e0
+
+重庆移动组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/60a36aefc74461ab735e5363de64b674c02eb746
+
+重庆联通组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/809630f2490847292eae1b592420be409d8d93a3
+
+重庆联通直播源下载地址： https://github.com/johnnykell/hpnaws/commit/e481e1089b94ccca5859e633cf7a45e741a37b28
+
+重庆电信组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/665b08f85a96a76c3e55a9f833f2f9572eff0e
+
+重庆电信直播源下载地址： https://github.com/johnnykell/hpnaws/commit/9abc3be04f296a03b907dc6b67c6eff572eff0e
+
+重庆 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/9abc3be04f296a03b907dc6b67c6e856f00e3435
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/9725645fedad97d24a1701506d07a09cd056ddeb
+
+四川电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/74e3b5cd754ffa2a45cccd4865776540837ffe47
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/193d2401fe95e0d0ef83cfb90ba3afdd3b4e0313
+
+四川广电 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/73062ae4531d591605b8d1ad08c00a51a49974c9
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/a62659e4e5d4765e5f94487ccdd33cbb68edfc52
+
+四川联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/ce2a3e700da517fd983ed09226f46d03be66bd1d
+
+四川 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/a4838ad33c4ff08d8afc0d6c326b0a223c35cc42
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/f0809ba8042c2ecf81658823107cafa170491ad1
+
+云南移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/969c506b9f4ea21ca4862ddb7ac719ab41b69895
+
+云南 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/429ffa9537daab664cfb33964b19fed851ba6916
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/e9583611ff88718bebc4c1d4f0cb67e7cd9f74f4
+
+贵州移动 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/b81982f4efa2ab892451f4f75b0855e6b9e470e5
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/726769326e0e27f72f728e33b16ec34239aa5035
+
+贵州联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/4845ec6ab02abe546dac39cf1d50e51001d8b3f3
+
+贵州 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/3c5101c5d6b285b570daa621f948335ec1520412
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/9a272710e8df659c2fd91fb59fb96e27801a4536
+
+福建联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/417a09176908d62aeab1eccabb9bf74a5eaeede1
+
+福建移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/49880bd663954ffd6efd340620ff182745bbd86c
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/4add0d64f133fedfd1cb0d714102e83e711b8288
+
+福建电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/68801f504d66da3ccfa8e812cae224af0c5355fd
+
+福建 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/3cef29f39b61ad912057fa4be8ff3225cca68104
+
+安徽移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/dc7d4e96412ae3b9b27b9b9e4fd70243db47c6bb
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/fc0cf4f117655a29a5c3992fa843dfeb6ea928bb
+
+安徽电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/07260f3e1e2876cbd8a03f191bb39c57bd20b9c9
+
+安徽联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/753cba7d27dc4afee7995de95019d848bff8ae6b
+
+安徽 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/c16525aaccb1b7b80a5277620c14fa17de61f7d6
+
+陕西地方台直播源下载地址： https://github.com/johnnykell/hpnaws/commit/d428f752a031ea9dbf8258d61468d5d0a0e7c42e
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/b00ddc0dfb92a7fa0b71d2bd7f5a4d688c6e4fb2
+
+陕西电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/37891a2376336628f77e024d0c123ee804a7f457
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/07ed55c177b2036d69289a274daf6c204e92f3a6
+
+陕西移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/2c5dae9bf1511bebfd310e322878dd0edba9106f
+
+陕西 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/f9ac7b82d35830208fb3d852db1cfc8ce202b65a
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/d46575838df3a4a8641f967fd3d5ef97d964dad0
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/10363837adcf00706ad10273c8f12d7d27f72f34
+
+甘肃 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/d6414635de05a33293242cff53a88deb250ac98a
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/10914577cc70050d345736d15514df67957d6d00
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/c6580bf5b5a7954d62485397aa3e8c421f764e8f
+
+山西联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/748c5953273b846e94144449f71d924275eb1637
+
+山西 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/d1056d65456b3bc04423b08ede258b90fa27bb30
+
+天津电信组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/694972bf5522b6b02cb1fea24d3601d9e125754e
+
+天津联通组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/efb1eef4d7b14927f3361dd49c2d5ef9b7913a4c
+
+天津 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/34dd4962e1928c3b01abb91f0c3ead9aa9ed1d22
+
+上海移动直播源下载地址： https://github.com/johnnykell/hpnaws/commit/8bd0b88743fccff404a7ab803b5040fd6d3f9a5e
+
+上海联通组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/7a19841aff6949aecad688ce8a657d962327625f
+
+上海联通直播源下载地址： https://github.com/johnnykell/hpnaws/commit/6fe47e85da8700c5eba001807f84830446c8641b
+
+上海电信组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/6a2ec19aa106d12725b90c05766edca9032e9607
+
+上海电信直播源下载地址： https://github.com/johnnykell/hpnaws/commit/96493b1eefa33fec6e78022427fdfb6f7690e94b
+
+上海 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/648b6a153683f144373f366f08f532ba211501fd
+
+北京移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/016962344e434e0537b43c7bbe1f7609b51d46d6
+
+北京移动组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/e67c3b3ac96043959f5dd814f403ed79b63675b2
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/bc8d5c1ce80c5c9217a8e97d30b4c892f0ceb2bc
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/d7bf1659d0e4624dd8125bbce28a8376722fcea5
+
+北京联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/a7f96f73591913ad038220452eae801b5ab92792
+
+北京 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/8cb2294ff76566adbd59bd12f570141b4417ad65
+
+部分地区的移动可全网通用： https://github.com/johnnykell/hpnaws/commit/d209fb9ae3ab803b76327b58618c85bf3666986a
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/johnnykell/hpnaws/commit/184dae38f62747ac64ad0123860e7577ca46efb6
+
+广播电台下载地址： https://github.com/johnnykell/hpnaws/commit/ffe345a4428d5a6d55850763901b5c387acf39b3
+
+国内景区直播源下载地址： https://github.com/johnnykell/hpnaws/commit/dfee4b6e4ce0834e9e0988a4a7120ff12087c151
+
+轮播华数黑莓下载地址： https://github.com/johnnykell/hpnaws/commit/fa1ea9fd8cd5e4649ff0ba257384b7ba0f7b5e9e
+
+台湾香港澳门电视台直播源下载地址： https://github.com/johnnykell/hpnaws/commit/ef95d6cc33e9b60d1fd508ac04ed8adef7d421bd
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/johnnykell/hpnaws/commit/c397ebef09847621fe5c1e4d07abb04ea1cbd289
+
+国外电视台直播源下载地址： https://github.com/johnnykell/hpnaws/commit/93aaab155cfcbebea95cb5b94829026b2645e805
+
+卫视地方台安徽农大下载地址： https://github.com/johnnykell/hpnaws/commit/468196e742424120b5a8df48571a135d37313c7a
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/johnnykell/hpnaws/commit/5a340e77ea16dd7dcefa1b160d6a346739a72a55
+
+卫视上海源下载地址： https://github.com/johnnykell/hpnaws/commit/98dfad77377d438e6c85acb2ed358d5a6f9f270e
+
+卫视重庆广电 下载地址： https://github.com/johnnykell/hpnaws/commit/941b5a04bbfedce276444adeb10df453b777f9b6
+
+卫视百视 TV 下载地址： https://github.com/johnnykell/hpnaws/commit/7d3b44a00333cf540dfd75b8b60f901db34963a6
+
+移动 IPv6 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/2fc5068866e660014fbf2b93c1844bf2378a1b75
+
+国内电视台 IPv6 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/c09a9ea86da23713b183a8018435c0f4eb75fb42
+
+各大卫视、上千个地方台： https://github.com/johnnykell/hpnaws/commit/1156fd299b8ea8d0dd383eae165dc8533ef319e0
+
+国内电视台直播源下载地址： https://github.com/johnnykell/hpnaws/commit/ced8cf1e2f1a0c0977ba567a94c70bd3f97e2a56
+
+全国可用直播源： https://github.com/johnnykell/hpnaws/commit/14c244a5f2b549133104ee6e935f6ab67a5c1efb
+
+包括完整内容所有已知频道： https://github.com/johnnykell/hpnaws/commit/1689d2422af7f3037e44c4ab30718d255e753e2d
+
+除成人内容以外的已知频道： https://github.com/johnnykell/hpnaws/commit/036a1f7793aa299a4cfba5feddf062156620590d
+
+收集来自世界各地公开可用的 IPTV： https://github.com/johnnykell/hpnaws/commit/eb1fc385ff18b2ea4c7f2aa16e3b6ab92ae6dc7a
+
+稳定地址： https://github.com/johnnykell/hpnaws/commit/2aeb8447c43de69148b4143f1140e3316954f85c
+
+2026-06-20 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/johnnykell/hpnaws/commit/2aabc92eb1b89a4ab1e7b8785df9ad46292b6a04
+
+2026-06-20 更新 IPTV 工具： https://github.com/johnnykell/hpnaws/commit/85330e023d5859d507f88eed8e8deff5f78321ef
+
+2026-06-20 更新世界各地 IPTV 频道： https://github.com/johnnykell/hpnaws/commit/61536d8e112fc6830b64ff86e4bf7bc92db95199
+
+2026-06-20 更新全国可用直播源： https://github.com/johnnykell/hpnaws/commit/48caa38c84d0c15625ac8926219752bbdd491a7f
+
+新增各地运营商的 IPTV 地址： https://github.com/johnnykell/hpnaws/commit/d4d484cdf8a4cfee2c81a01311ad9ae4ea51fa90
+
+插件推荐： https://github.com/johnnykell/hpnaws/commit/1ff08386ef8ad278f4f9ed54500d0358b757896c
+
+视频教程增加： https://github.com/johnnykell/hpnaws/commit/ebfcf8dc1ce9ec467937fbb888dff595e1fee271
+
+咪咕源失效： https://github.com/johnnykell/hpnaws/commit/e22152fe3b6a6b2fa6c2d9d841c30a86a4b7b3b0
+
+2026-06-20 更新各地运营商 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/1d6600267a6c46a8b984a22b7dda330c34df6495
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/johnnykell/hpnaws/commit/ccdd19b2e502a5bcd6bb27713f5dee7f661f0d77
+
+新增辽宁广电直播源： https://github.com/johnnykell/hpnaws/commit/61b11d020591f47cc6d0d68e4428f5cb440675ef
+
+新增江西广电直播源： https://github.com/johnnykell/hpnaws/commit/4fc6e8486af8b5339355993f0875814e732273b4
+
+新增湖北广电直播源： https://github.com/johnnykell/hpnaws/commit/8efd0ba8c5106219bd627849aa21cd83fc156843
+
+新增中国广电 cctv + 卫视直播源： https://github.com/johnnykell/hpnaws/commit/66d5bdc8c1d71b405c10c74aeabdcea80434807e
+
+新增辽宁电信 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/7177dc9f6cfa7ad5656b4503ff984dc24f0c705d
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/johnnykell/hpnaws/commit/6a560ddc189a906cd04249a367bba3a32015c299
+
+新增辽宁移动直播源： https://github.com/johnnykell/hpnaws/commit/ce86b13d1afaa906fb0edc77fe5940b07a7cd6ef
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/79d9562c2f45098fc1557e3a9406ded1e3336ed9
+
+新增广东联通 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/b25848a38f77110ef67f91913a1cf82a89301d3e
+
+新增四川广电 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/54ab6fd5ee97d706042af60558f5d05d28a0a9e4
+
+新增云南电信 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/8aa832ffda9e8066c2bc81a9c6a74d8e01803c46
+
+2026-06-20 更新国内电视台直播源： https://github.com/johnnykell/hpnaws/commit/fd53c78522127668bac178420496cfd20a6fa22d
+
+新增福建电信 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/efd05eebaeb4727b766309445185d7f897b139df
+
+新增天途云 CCTV + 卫视： https://github.com/johnnykell/hpnaws/commit/89935f7e14833f233a79377f148a61d0ea1fbc2e
+
+新增腾讯云 CCTV + 卫视： https://github.com/johnnykell/hpnaws/commit/75ec7997bf70786a445902634643bd562f393127
+
+新增 CCTV 付费频道直播源： https://github.com/johnnykell/hpnaws/commit/e514376326f52c80992f3a8ddd5f5dcfea98019e
+
+新增广播电台： https://github.com/johnnykell/hpnaws/commit/75aa1cf709cb224a9a94c966885b972fa35dc376
+
+2026-06-20 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/johnnykell/hpnaws/commit/468cd3e437128060fae0eeca1b73571404cb4842
+
+2026-06-20 更新 台湾香港海外直播源： https://github.com/johnnykell/hpnaws/commit/3d14b74d82fd19ea2afac4cd1bc7e31837a3c837
+
+2026-06-20 更新 国内电视台直播源： https://github.com/johnnykell/hpnaws/commit/5c335d57c980245a964148cffc37452012d02436
+
+国家直播源： https://github.com/johnnykell/hpnaws/commit/54b5dc454978d61545bf025ea5fbcc69bdfbc4b8
+
+直播源： https://github.com/johnnykell/hpnaws/commit/ec6bebb764e29f4df3aa01d606bbbbf1516b8752
+
+影视剧场： https://github.com/johnnykell/hpnaws/commit/8972c6f500b1ce3ff8d05a45fca1689c3cac77d0
+
+台湾香港澳门： https://github.com/johnnykell/hpnaws/commit/25feb021e9683fda899a964e234cd4d4686bb484
+
+国外电视台： https://github.com/johnnykell/hpnaws/commit/d663cd0697bd805d5603831c2fa984ea2b9a1916
+
+国内电视台： https://github.com/johnnykell/hpnaws/commit/57be13a52b58a4e407f9594cad43a4092b031598
+
+更早期 2026-06-20 更新： https://github.com/johnnykell/hpnaws/commit/fd78bb045ee5979dcf488f20d686aef5f5eca827
+
+各地运营商 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/dcfe64e52f940ea65736afded4911be4744a7947
+
+全国可用直播源： https://github.com/johnnykell/hpnaws/commit/ec50c12d85479d4d9daeb3b1752795b4b6d4a6a2
+
+2026-06-20 更新： https://github.com/johnnykell/hpnaws/commit/ed6afe13bcfd73a4f3fafc85edc8abc9c1923b6c
+
+赞助者： https://github.com/johnnykell/hpnaws/commit/904c3fe5e5864e133f5d5a27c2e2cb5d245e9669
+
+文章： https://github.com/johnnykell/hpnaws/commit/478bf3307f4b7dc8ce108a670488173da26befe5
+
+视频教程： https://github.com/johnnykell/hpnaws/commit/c092a18c064ee0946275e55cb034c08612af72a1
+
+插件： https://github.com/johnnykell/hpnaws/commit/11e3aa969f2d2054ca178a9af0f5c6fd2c032942
+
+工具： https://github.com/johnnykell/hpnaws/commit/e617aada12fab3564abd3e4b7c7557a73d84bbc5
+
+URL： https://github.com/johnnykell/hpnaws/commit/d11f4ed66c85b818f0c27e6b396830630bebd85e
+
+目录： https://github.com/johnnykell/hpnaws/commit/680b92d52d33c42f8c01552915f82ec9d9fb2a4e
+
+喀麦隆直播电视频道： https://github.com/johnnykell/hpnaws/commit/062d735ace14b34697e31dd77bd7690e9ce8cb74
+
+阿富汗直播电视频道： https://github.com/johnnykell/hpnaws/commit/2e3e592aa8f64866771f8eb3b8318df5d52c83e9
+
+海地的直播频道： https://github.com/johnnykell/hpnaws/commit/37d60548236240645c3773b88fa2191fe84c7bfc
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/johnnykell/hpnaws/commit/9009d3d39917ccb5d0304a59eba48c7531f7c43d
+
+厄瓜多尔直播频道： https://github.com/johnnykell/hpnaws/commit/3f227a2d92e626d574821567d1258ac29f916b95
+
+玻利维亚直播频道： https://github.com/johnnykell/hpnaws/commit/56a25beef3939f0505083bbd57b9577434704c22
+
+萨尔瓦多直播频道： https://github.com/johnnykell/hpnaws/commit/37037b26978eb7107c16192ac8c1ad79b7ca2626
+
+危地马拉直播频道： https://github.com/johnnykell/hpnaws/commit/e41b43967da16c4717f4293e1a0572fbbf4566cd
+
+洪都拉斯直播频道： https://github.com/johnnykell/hpnaws/commit/03426c0065e336f514ae069059062a3e0bf2e464
+
+多米尼加共和国直播频道： https://github.com/johnnykell/hpnaws/commit/908609fae0cfabab7b49c62e5b6aec47f8f9a3eb
+
+哥斯达黎加直播频道： https://github.com/johnnykell/hpnaws/commit/96f3fc94de3b5e266598339f61e2ce8a548d5403
+
+来自世界各地的个电视频道和个摄像机： https://github.com/johnnykell/hpnaws/commit/dc2e1607874704e0965eb3d87a74a0da0f38b96e
+
+免费数据库： https://github.com/johnnykell/hpnaws/commit/e2dfb9f7155c05ad44cdb82b8259092c4dc4faf2
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/johnnykell/hpnaws/commit/f0ed072b3c6cba747ae0a2cbffa8658951713892
+
+超过个国家地区的个高清频道和： https://github.com/johnnykell/hpnaws/commit/2cabab9a1e1f8dbf792417e68e6ec1c1cce83c90
+
+超过个直播电视频道影视节目： https://github.com/johnnykell/hpnaws/commit/d256c82298f2fa5b351e783d5337f82260c97c69
+
+提供商列表： https://github.com/johnnykell/hpnaws/commit/ea0da3ada2e4c371bbf68c63af69de4d385a1bc1
+
+提供者： https://github.com/johnnykell/hpnaws/commit/b3640e9f6ba8efba319a3671b0095256f3abce7a
+
+客户端服务器媒体播放器： https://github.com/johnnykell/hpnaws/commit/8737d0fc9344ae34faa2fc51b0095256f3abce7a
+
+支持播放列表文件： https://github.com/johnnykell/hpnaws/commit/8737d0fc9344ae34faa2fc338619066b195f8dd1
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/johnnykell/hpnaws/commit/2e33427ec2398dcb2048a9760cf89bd8558b9783
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/johnnykell/hpnaws/commit/9349c4e634097218ea5ed5e36518ff4d5bff1e5b
+
+点 即可： https://github.com/johnnykell/hpnaws/commit/8bb2b4c71320314247fb9fb87b0157023224ac77
+
+第三行不用管： https://github.com/johnnykell/hpnaws/commit/023712d70830cecd05fa0f48f667c1448e4274ef
+
+第二行输入上面给你的地址： https://github.com/johnnykell/hpnaws/commit/158bcfe132dc4f1094bed447e2c1f2f2b9f7853a
+
+第一行随意输入一个名字： https://github.com/johnnykell/hpnaws/commit/858da41482e9579ce1f4b212f102f6875b627ef4
+
+选择 远程播放列表文件： https://github.com/johnnykell/hpnaws/commit/92a4107699ac9e909af32e37dbd07a5fb78f0b30
+
+打开 点击 号： https://github.com/johnnykell/hpnaws/commit/3bd18d63c0d9b64f5be16fd05fcde46ca1fdc25b
+
+食用指南： https://github.com/johnnykell/hpnaws/commit/fe6524190be3e61eb69bbcf9a2a450cf7b751805
+
+适用于 macOS 的现代媒体播放器： https://github.com/johnnykell/hpnaws/commit/bdb6bae52cc2277b08223524c9a914382361b6c9
+
+直播电视和广播客户端插件： https://github.com/johnnykell/hpnaws/commit/ca5431f45348eecb64006fbf407793124314b50b
+
+具有库支持的免费跨平台媒体播放器： https://github.com/johnnykell/hpnaws/commit/73fb0c2832b942a855748e23c89e55c69cdb33cf
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/johnnykell/hpnaws/commit/90282d87a8bffa05dcccf720114da2f1db3ff1c1
+
+支持 IPTV 流的应用程序： https://github.com/johnnykell/hpnaws/commit/e3c2aba839d5c71b037715d02fabab03f90a9e8e
+
+工具： https://github.com/johnnykell/hpnaws/commit/0b8c04bfa146d0076343dd281c134cd7193d87c3
+
+轮播华数求索爱奇艺 2026-06-20 更新： https://github.com/johnnykell/hpnaws/commit/194458975d01432549123cf21dac45f30e00b2eb
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/johnnykell/hpnaws/commit/362c0b7feffec8ab50c275a657820beb2e742a6e
+
+台湾香港海外直播源 2026-06-20 更新： https://github.com/johnnykell/hpnaws/commit/38a16297985e92447b4b599e015d510339732e96
+
+各大卫视、上千个地方台： https://github.com/johnnykell/hpnaws/commit/8da5418430743f949e20b98e484ca547de046f1e
+
+国内电视台直播源 2026-06-20 更新： https://github.com/johnnykell/hpnaws/commit/c297f6b6a1b7790ed6af6ac68a7afec5390e3b7c
+
+卫视腾讯云： https://github.com/johnnykell/hpnaws/commit/b102b7a80c750e280bdd5472f786a784d0538e0e
+
+卫视平顶山学院教育网： https://github.com/johnnykell/hpnaws/commit/87e26b3742ac56013f9bd2b40f228e6861f6111f
+
+卫视天途云： https://github.com/johnnykell/hpnaws/commit/5cd6ad87e0de4f34ce48a0b6a16c425fd0c60f5d
+
+卫视地方台安徽农大： https://github.com/johnnykell/hpnaws/commit/8adc9f81a3b1abe22bc443ef68b7f658111d1982
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/johnnykell/hpnaws/commit/283b77baee1263435f702691170bf1969c314c90
+
+央视卫视广西移动直播源： https://github.com/johnnykell/hpnaws/commit/90710cee2a738675523e1fdede3ec1ebbb77f98c
+
+付费频道直播源： https://github.com/johnnykell/hpnaws/commit/133d1fe04346ee6b79c9520dc4cff3eeed74850b
+
+国家直播源多个全部有效： https://github.com/johnnykell/hpnaws/commit/9c5ba66e7391511b58b31997099c2ec3ad3e9ef2
+
+直播源全部有效： https://github.com/johnnykell/hpnaws/commit/546411c039ca41359d9c11e73ce0da8bf2403dd8
+
+全部有效： https://github.com/johnnykell/hpnaws/commit/41e280279088ce13ea3b46769ed3b54055cc522b
+
+直播源全部有效老电脑别用： https://github.com/johnnykell/hpnaws/commit/98bf52e058ee6e6744b3d176bede846869e6b231
+
+影视剧场全部流畅： https://github.com/johnnykell/hpnaws/commit/4fadf51a66dd4403f88f3ff3316d60ee814c7fbd
+
+全部可用： https://github.com/johnnykell/hpnaws/commit/3cb8a5cecadeb27b797988325f6d9a027f035687
+
+我的播放源： https://github.com/johnnykell/hpnaws/commit/2a1b228d7140efe4f2cf48ebe721ad91f3799f91
+
+其他直播源 不确定有效性： https://github.com/johnnykell/hpnaws/commit/ac25a759fc014170107bf0af889faf4da4c2fc78
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/763d227a3903954068cae28aee51729c08ba8594
+
+新疆 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/bef75f22dcac163e492ff01b83a8206cb00acaa7
+
+内蒙古联通 udp 组播下载地址： https://github.com/johnnykell/hpnaws/commit/97a4274175763bd5ca7f840228533d7268c25a52
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/f02bb62c023daaab6370515dc1aeb135e3df4fc7
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/ceabf83f38ca212abb8fedd6dededb088b655009
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/56ed511e93545e1e6257970b270eaa869c80fe3d
+
+内蒙古 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/89e196261416764e2a4658a0f88bb9c956d28f1b
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/7b467767ea5e8d989865ae81b84c8433523a0885
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/f9cb26ae9fcfccabd185c7b27b5e492e388ad5fb
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/bbe13e390e38d6e7721e69532f28906bf1e06e2f
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/e51ddc7606c09f98aaba302a63df48d0c79dac09
+
+黑龙江 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/f7e963ec75d74a05ea84589fc70ed38af06127f1
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/37632413f04bab4da43e0ae1f30b2a3545f7e220
+
+吉林 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/9cfea3a15d33b53e73bdb4231709afac9ed22ac8
+
+辽宁移动直播源下载地址： https://github.com/johnnykell/hpnaws/commit/9ca77bbd54465c34ac2cff53543f5928ed0194f9
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/abf95c92facfeb52d63d0ef2938ac65879d8551b
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/87a72883cfca0e9724c5085ded387c016a1c785a
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/691ad32c2cf0c83b493dc615c8c2bb12f4b39a37
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/2e3a3bd6c0f244b937f8f691afaba6a0ba49fddf
+
+辽宁 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/d9105434a2ecfdf28c2442e8bfa5d541bb288163
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/2775ad434adeff0bbf70ba568ec6a64346ec2f76
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/johnnykell/hpnaws/commit/c4920290df5cc5cbb5c9b6ee006c4d83a3aee2ec
+
+浙江联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/f4a89a5f54548dd86d57b70e25af58e80b651c9b
+
+浙江移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/b2c72b4432a97ef71bb8593da5bce2449970922e
+
+浙江 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/6764398abcb717058868191868152ead8a09f12a
+
+江西联通 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/84cbfb28feca3dc8dc8b4892e2607973af4527cb
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/9e8830c4e1aab7b2d93d2dcb19a6d36e7d1c30fc
+
+江西电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/93ff5ee81fb4a3fef519fcf1000646d0d691ca71
+
+江西移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/f954db468861a74086c45bf8840ba97a4d690c3a
+
+江西 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/f1212fb96a9498900e4cf4aadddb72acbb30b389
+
+江苏移动 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/47b5efd49c9067bf090889dc96e9cfa364576d0d
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/b2d1401251a6fe5f28a61bd668381513608814af
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/0c9e0d72d38c5abd91530e3786c32d2c5529a5e9
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/e5780013303be5290e6f0deb35a311653b857a39
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/2fc3d846dd85e19014e84cf1807114cc30d016e6
+
+江苏电信 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/61256dde90850b3d66a8359edca1eb4925c6eed2
+
+江苏 IPTV 直播源： https://github.com/johnnykell/hpnaws/commit/71cb97fb8a95fc2a29a2f2c362e9b01b36daa8de
+
+安徽广电 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/8c527a553e2f822b89dd3b01baafcbe01ab78103
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/854557d87fbcd617ccefae46852becf5300d201c
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/johnnykell/hpnaws/commit/a179d87330e72a45ae638bf03e9846ef2d0af4e0
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月20日17时04分36秒
+来源：https://github.com/johnnykell/hpnaws/commit/211440f63711e8f7a95b770a488b8ca31a7c8cb1
+
+来源：https://github.com/johnnykell/hpnaws/commit/6d7bc3aca600db45b42151c28be5e61962b0beb3
+
+来源：https://github.com/johnnykell/hpnaws/commit/a3d46610113011560d707d414621a10a87921910
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月20日，17时04分36秒
